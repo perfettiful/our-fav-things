@@ -2,6 +2,14 @@
 
 Curated list of Nate and Daniel favorite things!
 
+## Our Favorite Things are as follows:
+
+- raindrops on roses
+- whiskers on kittens
+- Pop-eyes
+- Mittens
+- Chocolate
+
 Raindrops on roses and whiskers on kittens
 Bright copper kettles and warm woolen mittens
 Brown paper packages tied up with strings
